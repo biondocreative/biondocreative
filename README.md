@@ -15,7 +15,7 @@ Services
 * [Web Design](https://www.biondocreative.com/services/web-design/)
 * [Pay Per Click Advertising (PPC)](https://www.biondocreative.com/services/pay-per-click/)
 * [Social Media Marketing](https://www.biondocreative.com/services/social-media/)
-* [Video Production]([https://opensource.microsoft.com/projects/](https://www.biondocreative.com/services/web-design/))
+* [Video Production](https://www.biondocreative.com/services/video-production/)
 
 Visit [www.biondocreative.com](https://www.biondocreative.com) to learn more!
 
