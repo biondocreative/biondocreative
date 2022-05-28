@@ -1,4 +1,4 @@
-![Web Design at Biondo Creative](https://github.com/biondocreative/.github/blob/main/profile/biondo-creative-indeed-header.jpg) 
+![Web Design at Biondo Creative](https://github.com/biondocreative/biondocreative/blob/main/biondo-creative-indeed-header.jpg) 
 
 ## About Biondo Creative
 
