@@ -31,6 +31,7 @@ Facebook: [https://www.facebook.com/biondocreative](https://www.facebook.com/bio
 LinkedIn: [https://www.linkedin.com/company/biondo-creative](https://www.linkedin.com/company/biondo-creative)
 
 Business Profile - Google: [https://www.google.com/maps?cid=1653140731386292956](https://www.google.com/maps?cid=1653140731386292956)
+
 Driving Directions
 - [Waze](https://www.waze.com/live-map/directions/us/pa/yardley/biondo-creative-web-design,-ecommerce,-ppc,-social-media?to=place.ChIJ3ch-BVGxxokR3GoCirwi8RY)
 - [Google](https://www.google.com/maps/dir//Biondo+Creative+-+Web+Design,+eCommerce,+PPC,+Social+Media,+56+S+Main+St+Suite+352,+Yardley,+PA+19067/@40.2413823,-74.839154,17z/data=!4m9!4m8!1m0!1m5!1m1!1s0x89c6b151057ec8dd:0x16f122bc8a026adc!2m2!1d-74.83696!2d40.2413782!3e0)
