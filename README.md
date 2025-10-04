@@ -6,9 +6,15 @@ Biondo Creative is a digital marketing agency based in Yardley, Pennsylvania, an
 
 Biondo Creative is an active member of the American Institute of Graphic Artists (AIGA), Bucks County Chamber of Commerce (BCCC), Chamber of Commerce for Greater Montgomery County, Greater Northeast Philadelphia Chamber of Commerce (GNPCC), and the Lower Bucks Chamber of Commerce (LBCC).
 
-Learn how Biondo Creative can improve your website today. For a free consultation, contact us at https://www.biondocreative.com or call 267-362-WEB1.
+Learn how Biondo Creative can improve your website today. For a free consultation, contact us at  or call .
 
-Our Work
+[Biondo Creative](https://www.google.com/maps?cid=1653140731386292956)
+56 S Main St Suite 352, Yardley, PA 19067
+267-362-9321
+[https://www.biondocreative.com](https://www.biondocreative.com)
+
+
+[Services](https://www.biondocreative.com/services/)
 * [Explore featured projects](https://www.biondocreative.com/case-studies/)
 
 Services
@@ -17,7 +23,6 @@ Services
 * [Social Media Marketing](https://www.biondocreative.com/services/social-media/)
 * [Video Production](https://www.biondocreative.com/services/video-production/)
 
-Visit [www.biondocreative.com](https://www.biondocreative.com) to learn more!
 
 ## Follow Us
 Website: [https://www.biondocreative.com](https://www.biondocreative.com)
@@ -29,8 +34,6 @@ Instagram: [http://www.instagram.com/biondocreative](http://www.instagram.com/bi
 Facebook: [https://www.facebook.com/biondocreative](https://www.facebook.com/biondocreative)
 
 LinkedIn: [https://www.linkedin.com/company/biondo-creative](https://www.linkedin.com/company/biondo-creative)
-
-Business Profile - Google: [https://www.google.com/maps?cid=1653140731386292956](https://www.google.com/maps?cid=1653140731386292956)
 
 Driving Directions
 - [Waze](https://www.waze.com/live-map/directions/us/pa/yardley/biondo-creative-web-design,-ecommerce,-ppc,-social-media?to=place.ChIJ3ch-BVGxxokR3GoCirwi8RY)
