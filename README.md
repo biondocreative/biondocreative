@@ -14,16 +14,14 @@ Learn how Biondo Creative can improve your website today. For a free consultatio
 [https://www.biondocreative.com](https://www.biondocreative.com)
 
 
-## Services
-* [Explore featured projects](https://www.biondocreative.com/case-studies/)
-
-Services
+## Digital Marketing Services
 * [Web Design](https://www.biondocreative.com/services/web-design/)
 * [Pay Per Click Advertising (PPC)](https://www.biondocreative.com/services/pay-per-click/)
 * [Social Media Marketing](https://www.biondocreative.com/services/social-media/)
 * [Video Production](https://www.biondocreative.com/services/video-production/)
 * [All Digital Marketing Services](https://www.biondocreative.com/services/)
 
+* [Explore featured projects](https://www.biondocreative.com/case-studies/)
 
 ## Follow Us
 Website: [https://www.biondocreative.com](https://www.biondocreative.com)
